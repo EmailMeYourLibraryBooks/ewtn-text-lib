@@ -2,7 +2,7 @@
 
 ***
 
-## Setting: Timothy Paul Banks
+## Setting: Timothy Paul Banks; R.V.W.
 
 O taste and see how gracious the Lord is;
 Blessed is the man that trusteth in Him.
