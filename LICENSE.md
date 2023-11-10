@@ -1,1 +1,1 @@
-This work is licensed under [Attribution-NonCommercial-ShareAlike 4.0 International](http://creativecommons.org/licenses/by-nc-sa/4.0/?ref=chooser-v1) ![CC](https://chooser-beta.creativecommons.org/img/cc-logo.f0ab4ebe.svg) ![BY](https://chooser-beta.creativecommons.org/img/cc-by.21b728bb.svg)
+This work is licensed under [Attribution-NonCommercial-ShareAlike 4.0 International](http://creativecommons.org/licenses/by-nc-sa/4.0/?ref=chooser-v1)
