@@ -2,7 +2,7 @@
 
 ***
 
-## Setting: Hymn sheet
+## Setting: Hymn sheet (HYFRYDOL)
 
 Blest the man who fears Jehovah,
 Walking ever in his ways;

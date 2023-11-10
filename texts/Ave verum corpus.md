@@ -60,3 +60,15 @@ mortis in examine.
 O Jesu dulcis!
 O Jesu pie!
 O Jesu fili Mariae.
+
+## Setting: W.A. Mozart
+
+Ave, ave verum corpus
+Natum de Maria Virgine;
+Vere passum, immolatum
+In cruce pro homin:
+Cuius latus perforatum
+Unda fluxit et sanguine:
+Esto nobis praegustatum
+In mortis examine,
+In mortis examine.
