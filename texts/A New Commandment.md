@@ -1,5 +1,4 @@
 # A New Commandment
-## Related: [[Un mandamiento nuevo]], [[I am the vine]]
 
 ***
 

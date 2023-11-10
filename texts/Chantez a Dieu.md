@@ -1,9 +1,8 @@
 # Chantez à Dieu
-## Related: [[Lift up your voice]]
 
 ***
 
-## Setting: Sweelinck
+## Setting: Jan Pieterszoon Sweelinck
 
 Chantez à Dieu chanson nouvelle,  
 *Sing to the Lord a new song,*

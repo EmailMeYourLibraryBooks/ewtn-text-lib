@@ -1,5 +1,4 @@
 # Notre Père
-## Related: [[Otche Nash]], [[Our Father]]
 
 ***
 

@@ -1,9 +1,8 @@
 # Lift up your voice
-## Related: [[Chantez à Dieu]]
 
 ***
 
-Setting: Sweelinck
+Setting: Jan Pieterszoon Sweelinck
 
 Lift up your voice and sing a new song,
 Lift up your voice and sing a new song,

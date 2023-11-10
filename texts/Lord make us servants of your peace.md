@@ -1,5 +1,4 @@
 # Lord, make us servants of your peace
-## Related: [[Make me a channel of your peace]], [[Prayer of Saint Francis]]
 
 ***
 

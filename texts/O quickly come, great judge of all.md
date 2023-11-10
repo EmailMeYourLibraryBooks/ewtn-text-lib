@@ -1,4 +1,4 @@
-# O quickly come, great judge of all\
+# O quickly come, great judge of all
 
 ***
 

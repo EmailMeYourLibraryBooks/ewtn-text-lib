@@ -1,5 +1,4 @@
 # O how glorious
-## Related: [[O quam gloriosum]]
 
 ***
 

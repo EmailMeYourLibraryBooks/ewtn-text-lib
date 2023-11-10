@@ -4,7 +4,7 @@
 
 ## EWTN Hymn Supplement
 
-To stalwart trees both rooted
+Two stalwart trees both rooted
 in faith and holy love,
 by hope of God united
 they reach to heaven above.

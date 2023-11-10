@@ -1,5 +1,5 @@
 # Prayer of Saint Francis
-## Related: [[Lord make us servants of your peace]], [[Make me a channel of your peace]]
+
 ***
 
 ## Setting: Gary Penkala
