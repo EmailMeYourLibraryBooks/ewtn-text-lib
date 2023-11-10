@@ -1,4 +1,4 @@
-# Wilt thou forgive that sin, by which I won
+# Wilt thou forgive that sin, where I begun
 
 ***
 
