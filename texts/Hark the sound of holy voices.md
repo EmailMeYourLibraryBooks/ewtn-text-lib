@@ -31,3 +31,25 @@ that we may for evermore,
 Father, Son, and Holy Spirit
 truly worship and adore.
 Amen, amen, amen.
+
+## Setting: EWTN Hymn Supplement (DRAKE'S BOUGHTON)
+
+Hark! the sound of holy voices,
+chanting at the crystal sea;
+Alleluia, alleluia,
+Alleluia, Lord to thee.
+
+Multitude which none can number,
+like the stars in glory stands,
+clothed in white apparel, holding
+palms of vict'ry in their hands.
+
+Now they reign in heavenly glory,
+Now they walk in golden light,
+Now they drink, as from a river,
+Holy bliss and infinite:
+
+Love and peace they taste for ever,
+And all truth and knowledge see
+In the beatific vision
+Of the blessed Trinity.

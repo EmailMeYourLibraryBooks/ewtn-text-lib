@@ -117,3 +117,32 @@ Till all the ransomed number
 fall down before the throne,
 And honor, power, and glory,
 ascribe to God alone.
+
+## Setting: Adoremus Hymnal (Andrew)
+
+From all Thy saints in warfare, 
+for all Thy saints at rest,
+To Thee, O blessèd Jesus, 
+all praises be addressed;
+Thou, Lord, didst win the battle, 
+that they might conquerors be;
+Their crowns of living glory 
+are lit with rays from Thee.
+
+Praise, Lord, for thine apostle,
+The first to welcome thee,
+The first to lead his brother
+The very Christ to see.
+With hearts for thee made ready,
+May we throughout the year
+Still watch to lead our brethren
+To own thine advent near.
+
+Then praise we God the Father,
+and praise we God the Son,
+And God the Holy Spirit,
+eternal Three in One;
+Till all the ransomed number
+fall down before the throne,
+And honor, power, and glory,
+ascribe to God alone.

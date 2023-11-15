@@ -17,7 +17,7 @@ to heal my leprosy.
 Compassion moves his tender heart
 And, with a gracious word,
 He speaks, “I will,” and with a touch
-the leprous Jew restored.
+the leprous soul restored.
 
 Ye leprous souls, to Jesus come,
 With sin, a worse disease:
