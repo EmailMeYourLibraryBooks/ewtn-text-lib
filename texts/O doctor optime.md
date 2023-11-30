@@ -46,3 +46,12 @@ Doctor Evangelice,
 divinae legis amator:
 deprecare pro nobis Filium Dei.
 Alleluia.
+
+## Setting: Victoria (Ambrose)
+
+O Doctor optime,
+Ecclesiae sanctae lumen,
+beate Ambrosi,
+divinae legis amator:
+deprecare pro nobis Filium Dei.
+Alleluia.
