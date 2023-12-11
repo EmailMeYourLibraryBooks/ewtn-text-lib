@@ -2,7 +2,7 @@
 
 ***
 
-## Setting: Hymn sheet (Roby, CHRISTIAN LOVE); Adoremus Hymnal 615
+## Setting: Hymn sheet (Roby, CHRISTIAN LOVE); Adoremus Hymnal 615; Hymn sheet (NEWMAN)
 
 “Forgive our sins as we forgive,”
 You taught us, Lord, to pray;
