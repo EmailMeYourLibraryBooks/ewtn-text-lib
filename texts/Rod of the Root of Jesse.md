@@ -37,5 +37,5 @@ As drops the earth that water,
 The Virgin didst thou fill.
 For Media, segued with Sheba,
 Falls down and worships Thee:
-Tarnish and Ethiopia, 
+Tarshish and Ethiopia, 
 The isles and Araby.

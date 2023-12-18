@@ -40,7 +40,7 @@ Men dared Thy Saints to kill,
 Yet didst Thou not consume them,  
 But bear’st their insults still.  
 
-hou Who has fixed unshaken  
+Thou Who has fixed unshaken  
 Thy Church’s mighty frame,  
 So that hell-gates shall never  
 Prevail against the same;—  
